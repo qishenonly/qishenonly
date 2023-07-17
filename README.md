@@ -26,6 +26,6 @@ Here are some ideas to get you started:
 
 ### How to contact me?
 
-email: bsgodqi@163.com or 1050026498@qq.com
+email: bsgodqi@163.com 
 
 WeChat: qishen_on
